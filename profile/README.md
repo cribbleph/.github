@@ -92,6 +92,6 @@ From the rice fields of Ifugao to the streets of Manila - Cribble speaks your la
 **Built with ❤️ for everyone who searches**
 
 • [🌐 cribble.ph](https://cribble.ph) 
-• [🐦 @cribble_ph](https://x.com/cribble_ph)
+• [🐦 @cribble_ph](https://x.com/cribblephx)
 
 </div>
